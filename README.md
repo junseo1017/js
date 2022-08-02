@@ -7,7 +7,7 @@
 
 
 ### Contact
-- e-mail. dlwnstjzld@naver.com    
+- e-mail. dlwnstjzld@gmail.com    
 - blog.  https://velog.io/@simplicityyy
 
 
