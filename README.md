@@ -7,9 +7,9 @@
 
 
 
-### Contact
+### Contact　（東京）
 - e-mail. dlwnstjzld@gmail.com    
 - blog.  https://velog.io/@simplicityyy
-- 
+- blog2. https://note.com/rinoitblog
 
 
