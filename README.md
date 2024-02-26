@@ -1,4 +1,4 @@
-## LEE JUNSEO
+## Introduce
 フロントエンドエンジニア、李です。
 
 
